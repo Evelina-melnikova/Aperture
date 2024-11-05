@@ -1,4 +1,4 @@
-# Aperture-
+# Aperture
 
 ___
 
